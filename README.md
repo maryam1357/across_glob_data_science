@@ -8,7 +8,7 @@ My approach:
 
 
 ## Hana
-My approach: 
+My approach:
 
 ## Mohammad
 My approach: 
